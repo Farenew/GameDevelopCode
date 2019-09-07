@@ -18,7 +18,8 @@
 
 这个部分录制了一个小视频, 视频链接:
 
-https://youtu.be/sjjozG7CHSo
+Youtube: https://youtu.be/sjjozG7CHSo
+Bilibli: https://www.bilibili.com/video/av66933049
 
 
 ---
